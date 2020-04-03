@@ -1,0 +1,2 @@
+# clarity
+Clarity of photos
